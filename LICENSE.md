@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with elite raydium trading bot Plugin | front-running-detection + DEX-arbitrage, the #1 raydium trading bot. Includes front-running-detection and
 
 
 
